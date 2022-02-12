@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Choridatul Bahiyyah**.\
+Perkenalkan nama saya **Choridatul Bahiyyah**.
 
 Saya seorang **Developer Member of Greskit** 
 
