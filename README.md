@@ -8,7 +8,7 @@ Saya juga seorang anggota Lembaga Falakiyah PCNU Gresik
 
 Selain itu, saya sebagai anggota klub Horse Riding Archery (HRA) Kalimireng Manyar 
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/choridatul-bahiyyah-66a3551ab/)ku ya.
+Jika kalian ingin berkenalan dengan saya, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/choridatul-bahiyyah-66a3551ab/) saya ya.
 
 
 <p align="left">
